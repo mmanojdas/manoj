@@ -17,7 +17,19 @@
 
 ---
 
-## 👤 **About Manoj Das**
+##
+
+
+
+
+
+
+
+
+
+
+
+ 👤 **About Manoj Das**
 - **Location**: 🇮🇳 India, Assam  
 - **Age**: 19+  
 - **Best Friend**: [Kopil Boraha 🗿](https://t.me/Kopilb)
@@ -37,9 +49,9 @@
 
 ## 🌌 **My Channels**
 ✨ I'm proud to manage these communities:  
-- **[Indian Coder](https://t.me/+huMINB3nupxlOTI1)** 🛠️  
-- **[Indian Course](https://t.me/+huMINB3nupxlOTI1)** 🎓  
-- **[Premium Codes](https://t.me/+huMINB3nupxlOTI1)** 💎  
+- **[MY USER ](https://t.me/KingOfTdm0)** 🛠️  
+- **[MY OFFICAL TG CHANNEL](https://t.me/+huMINB3nupxlOTI1)** 🎓  
+- **[MY YOUTUBE CHANNEL](https://youtube.com/@itsspidy2.0?si=mUBN54nDt5i54wG6)** 💎  
 
 ---
 
@@ -52,9 +64,9 @@
 ---
 
 ## 🎯 **Goals**
-- Build advanced tools for ethical hacking.  
-- Innovate web frameworks for better user experience.  
-- Create impactful, open-source tools.  
+- LARNING NEW SKILL
+ AND 
+ MERRY N.J 😅🤫
 
 ---
 
